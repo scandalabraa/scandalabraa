@@ -13,8 +13,9 @@
 
 　　  i lovw my friends a lot hi rue hi nick hi jg hi pt party  [ so all who i have mentioned . hlep ]  hi i love you guys with all my heart ok ?
 
+　　  　　  　　  　　  　　  my loovely stupid idiot babies i loev so much hi jonny hi rue hi jg  :}
+　　  ![image](https://github.com/user-attachments/assets/426de2f1-f12c-4f27-9af9-133c17ebbcb0)![image](https://github.com/user-attachments/assets/22abe170-b556-4932-aa02-6c7273f2587d)
 
-　　   　　　　   　　![image](https://github.com/user-attachments/assets/426de2f1-f12c-4f27-9af9-133c17ebbcb0)
 
 
 　　   　　　　   　　　   　　　　   　stamp hoard .. 
